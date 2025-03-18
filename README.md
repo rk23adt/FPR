@@ -1,1 +1,1 @@
-# FPR
+# FPR initial bid
